@@ -8,4 +8,4 @@ We will also discuss the importance of mindfulness, positive psychology, and emo
 
 By reading this book, you will gain a comprehensive understanding of how to develop a growth mindset and unlock your full potential at work. Whether you're an employee, leader, or entrepreneur, this book will provide valuable insights and strategies for achieving greater success and fulfillment in your career.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.

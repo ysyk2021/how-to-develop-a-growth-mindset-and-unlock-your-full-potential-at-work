@@ -1,5 +1,3 @@
-The Importance of Overcoming Limiting Beliefs and Mindsets in Developing a Growth Mindset
-==============================================================================================================================================
 
 In this chapter, we will explore the importance of overcoming limiting beliefs and mindsets in developing a growth mindset. We will provide guidance on identifying and overcoming limiting beliefs and mindsets to unlock your full potential at work.
 

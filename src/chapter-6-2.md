@@ -1,5 +1,3 @@
-Strategies for seeking feedback and mentoring
-========================================================================================
 
 In this chapter, we will discuss practical strategies for seeking feedback and mentoring to help develop a growth mindset at work.
 

@@ -1,5 +1,3 @@
-The benefits of applying growth mindset skills to unlock your full potential at work
-=====================================================================================================================================================================
 
 In this chapter, we will explore the benefits of applying growth mindset skills to unlock your full potential at work. We will also discuss practical strategies that individuals can use to apply growth mindset skills in the workplace.
 

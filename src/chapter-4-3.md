@@ -1,5 +1,3 @@
-Using curiosity and experimentation techniques
-=============================================================================================
 
 In this chapter, we will explore the importance of cultivating a learning orientation and using curiosity and experimentation techniques to develop a growth mindset at work.
 

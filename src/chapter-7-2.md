@@ -1,5 +1,3 @@
-Strategies for Overcoming Limiting Beliefs and Mindsets
-============================================================================================================
 
 In this chapter, we will discuss practical strategies for overcoming limiting beliefs and mindsets to foster a growth mindset at work.
 

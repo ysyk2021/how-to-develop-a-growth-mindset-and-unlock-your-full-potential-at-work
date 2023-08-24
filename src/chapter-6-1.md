@@ -1,5 +1,3 @@
-The role of seeking feedback and mentoring in developing a growth mindset
-====================================================================================================================
 
 In this chapter, we will discuss the importance of seeking feedback and mentoring as strategies for developing a growth mindset at work.
 

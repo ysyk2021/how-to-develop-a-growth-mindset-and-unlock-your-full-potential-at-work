@@ -1,5 +1,3 @@
-Chapter 8: Setting Goals and Measuring Success
-==============================================
 
 Setting goals and measuring success are important components of developing a growth mindset. In this chapter, we'll explore the role of goal setting in personal and professional development, strategies for effective goal setting, and how to use SMART goal setting and progress tracking.
 

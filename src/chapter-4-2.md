@@ -1,5 +1,3 @@
-Strategies for cultivating a learning orientation
-================================================================================================
 
 Cultivating a learning orientation is an important component of developing a growth mindset. In this chapter, we will explore practical strategies that individuals can use to cultivate a learning orientation.
 

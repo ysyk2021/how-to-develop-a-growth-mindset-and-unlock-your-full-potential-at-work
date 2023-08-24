@@ -1,5 +1,3 @@
-Chapter 5: Developing Resilience and Grit
-=========================================
 
 Developing resilience and grit are important aspects of developing a growth mindset. In this chapter, we'll explore the importance of resilience and grit, strategies to build these attributes, and techniques for using positive self-talk and perseverance.
 

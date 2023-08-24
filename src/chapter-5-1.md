@@ -1,5 +1,3 @@
-The importance of developing resilience and grit in developing a growth mindset
-==========================================================================================================================
 
 In this chapter, we will explore the importance of developing resilience and grit in developing a growth mindset. We will also discuss practical strategies that individuals can use to develop resilience and grit in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 6: Seeking Feedback and Mentoring
-=========================================
 
 Seeking feedback and mentoring are essential components of developing a growth mindset. In this chapter, we'll explore the role of seeking feedback and mentoring in developing a growth mindset, strategies for seeking feedback and mentoring, and techniques for using active listening and constructive criticism.
 

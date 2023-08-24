@@ -1,5 +1,3 @@
-Using SMART Goal Setting and Progress Tracking
-==============================================================================================
 
 Setting goals is an important component of developing a growth mindset and unlocking your full potential at work. In this chapter, we will explore the concept of SMART goal setting and progress tracking as tools for achieving success.
 

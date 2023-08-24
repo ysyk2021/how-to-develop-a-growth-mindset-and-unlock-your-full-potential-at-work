@@ -1,5 +1,3 @@
-Demonstrating leadership and adaptability skills
-=================================================================================================================================
 
 In this chapter, we will explore the importance of demonstrating leadership and adaptability skills in applying growth mindset skills to unlock your full potential at work. We will also discuss practical strategies that individuals can use to develop these skills.
 

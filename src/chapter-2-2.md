@@ -1,5 +1,3 @@
-The Impact of Growth Mindset on Personal and Professional Development
-==============================================================================================================
 
 In this chapter, we will explore the concept of growth mindset and its impact on personal and professional development. We will define growth mindset, contrast it with a fixed mindset, and provide guidance on cultivating a growth mindset.
 

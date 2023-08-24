@@ -1,5 +1,3 @@
-Chapter 2: Understanding Growth Mindset
-=======================================
 
 Understanding growth mindset is crucial to developing one's full potential. In this chapter, we'll explore the definition of growth mindset, its impact on personal and professional development, and strategies for developing a growth mindset.
 

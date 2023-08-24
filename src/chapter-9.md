@@ -1,5 +1,3 @@
-Chapter 9: Applying Growth Mindset Skills to Unlock Your Full Potential at Work
-===============================================================================
 
 A growth mindset is not just a personal quality - it's a skill set that can be applied in the workplace to unlock your full potential. In this chapter, we'll explore the benefits of applying growth mindset skills to your work, strategies for doing so, and how to demonstrate leadership and adaptability skills.
 

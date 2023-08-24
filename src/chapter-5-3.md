@@ -1,5 +1,3 @@
-Using Positive Self-Talk and Perseverance Techniques
-===============================================================================================
 
 In this chapter, we will discuss practical strategies for developing resilience and grit to foster a growth mindset at work.
 

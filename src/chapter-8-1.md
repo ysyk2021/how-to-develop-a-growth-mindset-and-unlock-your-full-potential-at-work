@@ -1,5 +1,3 @@
-The role of setting goals and measuring success in developing a growth mindset
-==============================================================================================================================
 
 In this chapter, we will discuss the importance of setting goals and measuring success as strategies for developing a growth mindset at work.
 

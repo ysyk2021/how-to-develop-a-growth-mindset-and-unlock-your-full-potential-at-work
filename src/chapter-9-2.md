@@ -1,5 +1,3 @@
-Strategies for Using Growth Mindset Skills to Unlock Your Full Potential at Work
-=================================================================================================================================================================
 
 In this chapter, we will explore strategies for using growth mindset skills to unlock your full potential at work. By applying these skills, you can develop a more positive and productive work mindset, overcome challenges and obstacles, and achieve your goals.
 

@@ -1,5 +1,3 @@
-The role of cultivating a learning orientation in developing a growth mindset
-============================================================================================================================
 
 Cultivating a learning orientation is an essential component of developing a growth mindset. In this chapter, we will explore the concept of a learning orientation and its role in developing a growth mindset.
 

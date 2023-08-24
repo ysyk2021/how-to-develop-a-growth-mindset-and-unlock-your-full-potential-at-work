@@ -1,5 +1,3 @@
-Chapter 7: Overcoming Limiting Beliefs and Mindsets
-===================================================
 
 Overcoming limiting beliefs and mindsets is a crucial step in developing a growth mindset. In this chapter, we'll explore the importance of overcoming limiting beliefs and mindsets, strategies for doing so, and techniques for using mindfulness and affirmations.
 

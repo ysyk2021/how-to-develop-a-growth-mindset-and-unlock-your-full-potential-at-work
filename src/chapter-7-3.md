@@ -1,5 +1,3 @@
-Using Mindfulness and Affirmations
-=======================================================================================
 
 In this chapter, we will discuss practical strategies for overcoming limiting beliefs and mindsets using mindfulness and affirmations to foster a growth mindset at work.
 

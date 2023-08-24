@@ -1,5 +1,3 @@
-Using Reframing and Self-Reflection Techniques
-===========================================================================================
 
 In this chapter, we will discuss practical strategies for embracing challenges and failure to foster a growth mindset at work.
 

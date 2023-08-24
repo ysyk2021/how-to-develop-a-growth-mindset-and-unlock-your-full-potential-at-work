@@ -1,5 +1,3 @@
-Benefits of Developing a Growth Mindset to Unlock Full Potential at Work
-=================================================================================================
 
 In this chapter, we will explore the benefits of developing a growth mindset to unlock your full potential at work. A growth mindset is a belief system that recognizes one's ability to learn and grow rather than being limited by predetermined abilities.
 

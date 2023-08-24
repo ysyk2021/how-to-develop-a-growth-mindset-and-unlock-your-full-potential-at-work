@@ -1,5 +1,3 @@
-Definition of Growth Mindset
-=====================================================================
 
 In this chapter, we will define growth mindset and explore its characteristics. We will also contrast growth mindset with a fixed mindset and explain why cultivating a growth mindset is essential for personal and professional development.
 

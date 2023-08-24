@@ -1,4 +1,4 @@
-# Conclusion
+
 
 In this book, we have explored how to develop a growth mindset and unlock your full potential at work. By adopting a growth-oriented mindset, embracing challenges, and learning from failures, individuals can expand their knowledge, skills, and abilities over time.
 

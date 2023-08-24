@@ -1,5 +1,3 @@
-Chapter 3: Embracing Challenges and Failure
-===========================================
 
 Embracing challenges and failure is an integral part of developing a growth mindset. In this chapter, we'll explore the importance of embracing challenges and failure, strategies for doing so, and techniques for using reframing and self-reflection.
 

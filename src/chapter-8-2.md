@@ -1,5 +1,3 @@
-Strategies for setting goals and measuring success
-==================================================================================================
 
 In this chapter, we will discuss practical strategies for setting goals and measuring success in order to develop a growth mindset at work.
 

@@ -1,5 +1,3 @@
-Strategies for Embracing Challenges and Failure
-============================================================================================
 
 In this chapter, we will discuss practical strategies for embracing challenges and failure to foster a growth mindset at work.
 

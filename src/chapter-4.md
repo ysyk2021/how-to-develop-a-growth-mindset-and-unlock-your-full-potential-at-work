@@ -1,5 +1,3 @@
-Chapter 4: Cultivating a Learning Orientation
-=============================================
 
 Cultivating a learning orientation is a crucial component of developing a growth mindset. In this chapter, we'll explore the role of a learning orientation in developing a growth mindset, strategies for cultivating one, and techniques for using curiosity and experimentation.
 

@@ -1,5 +1,3 @@
-Strategies for Developing a Growth Mindset
-===================================================================================
 
 In this chapter, we will explore strategies for developing a growth mindset. We will discuss the importance of self-awareness, setting goals, embracing challenges, and learning from failure in cultivating a growth mindset.
 

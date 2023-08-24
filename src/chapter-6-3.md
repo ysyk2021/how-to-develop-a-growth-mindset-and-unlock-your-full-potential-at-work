@@ -1,5 +1,3 @@
-Using Active Listening and Constructive Criticism Techniques
-=======================================================================================================
 
 In this chapter, we will discuss the importance of seeking feedback and mentoring to develop a growth mindset. We will also explore techniques such as active listening and constructive criticism that can help individuals receive and use feedback effectively.
 

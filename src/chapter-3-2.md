@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Embracing Challenges and Failure
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for embracing challenges and failure as opportunities for growth and development. Developing a growth mindset entails seeing setbacks as stepping stones towards success and leveraging them to unlock your full potential at work. By adopting these strategies, you can overcome obstacles with resilience and find inspiration in failure.
 

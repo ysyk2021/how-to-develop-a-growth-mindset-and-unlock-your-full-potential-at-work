@@ -1,5 +1,4 @@
-Chapter 2: Strategies for Developing a Growth Mindset
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical strategies that can help you develop and strengthen a growth mindset. By implementing these strategies into your daily life, you can cultivate a mindset that embraces challenges, values learning, and unlocks your full potential at work.
 

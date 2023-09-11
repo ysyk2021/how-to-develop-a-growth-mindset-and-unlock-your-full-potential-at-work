@@ -1,5 +1,4 @@
-Chapter 6: Using Mindfulness and Affirmations
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful practices of mindfulness and affirmations in developing a growth mindset and unlocking your full potential at work. These techniques can help you cultivate self-awareness, manage stress, and maintain a positive outlook on your abilities and potential.
 

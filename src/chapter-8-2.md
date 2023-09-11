@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Setting Goals and Measuring Success
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we'll explore effective strategies for setting goals and measuring success to harness the power of a growth mindset in unlocking your full potential at work. By implementing these strategies, you can establish clear objectives, track your progress, and celebrate achievements, propelling your professional growth.
 

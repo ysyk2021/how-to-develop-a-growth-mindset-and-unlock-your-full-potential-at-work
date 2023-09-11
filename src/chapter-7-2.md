@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Overcoming Limiting Beliefs and Mindsets
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for overcoming limiting beliefs and mindsets that may hinder your growth and prevent you from unlocking your full potential at work. By identifying and challenging these beliefs, you can cultivate a more expansive mindset and open yourself up to new possibilities and opportunities.
 

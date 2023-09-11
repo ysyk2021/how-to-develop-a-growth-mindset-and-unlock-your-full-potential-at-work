@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Developing Resilience and Grit
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into strategies for developing resilience and grit, two essential traits that contribute to a growth mindset and unlocking your full potential at work. By cultivating resilience and embracing the power of grit, you can navigate challenges, bounce back from setbacks, and achieve long-term success in your professional journey.
 

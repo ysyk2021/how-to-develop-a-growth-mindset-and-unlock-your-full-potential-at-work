@@ -1,5 +1,4 @@
-Chapter 7: Using Reframing and Self-Reflection Techniques
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the transformative techniques of reframing and self-reflection. These practices can help you develop a growth mindset, overcome challenges, and unlock your full potential at work. By shifting your perspective and gaining self-awareness, you can navigate obstacles with resilience and foster personal and professional growth.
 

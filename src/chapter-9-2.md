@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Using Growth Mindset Skills to Unlock Your Full Potential at Work
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore practical strategies for leveraging growth mindset skills to unlock your full potential in the workplace. By incorporating these strategies into your professional life, you can cultivate a powerful growth-oriented mindset and achieve extraordinary results.
 

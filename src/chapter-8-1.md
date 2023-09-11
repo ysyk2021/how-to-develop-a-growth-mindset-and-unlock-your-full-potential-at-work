@@ -1,5 +1,4 @@
-Chapter 8: The Role of Setting Goals and Measuring Success in Developing a Growth Mindset
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role that setting goals and measuring success play in developing a growth mindset and unlocking your full potential at work. By understanding how these components intertwine, you can create a framework for continuous growth and achievement.
 

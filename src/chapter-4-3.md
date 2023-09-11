@@ -1,5 +1,4 @@
-Chapter 11: Using Curiosity and Experimentation Techniques
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of curiosity and experimentation in developing a growth mindset and unlocking your full potential at work. Cultivating curiosity and embracing experimentation are powerful strategies for fostering innovation, continuous learning, and personal development. By harnessing these techniques, you can enhance your problem-solving skills, discover new possibilities, and achieve greater success in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter 1: Definition of Growth Mindset
-=======================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the definition of a growth mindset and its significance in developing your full potential at work. Understanding the concept of a growth mindset is a fundamental step towards cultivating resilience, embracing challenges, and achieving success in your professional journey.
 

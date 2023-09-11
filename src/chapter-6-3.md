@@ -1,5 +1,4 @@
-Chapter 9: Using Active Listening and Constructive Criticism Techniques
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of active listening and constructive criticism techniques in developing a growth mindset and unlocking your full potential at work. Effective communication and feedback are essential for personal and professional growth, and practicing active listening and embracing constructive criticism can greatly enhance your ability to learn, adapt, and develop a growth mindset.
 

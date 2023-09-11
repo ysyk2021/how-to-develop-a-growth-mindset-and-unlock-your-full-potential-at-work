@@ -1,5 +1,4 @@
-Chapter 8: Using SMART Goal Setting and Progress Tracking
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how to leverage SMART goal setting and progress tracking techniques to develop a growth mindset and unlock your full potential at work. By implementing these strategies, you can set clear, achievable goals and effectively measure your progress towards them.
 

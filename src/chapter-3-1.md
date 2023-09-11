@@ -1,5 +1,4 @@
-Chapter 8: The Importance of Embracing Challenges and Failure in Developing a Growth Mindset
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role that embracing challenges and failure plays in developing a growth mindset. By understanding and appreciating the value of these experiences, individuals can unlock their full potential at work and beyond.
 

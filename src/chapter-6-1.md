@@ -1,5 +1,4 @@
-Chapter 10: The Role of Seeking Feedback and Mentoring in Developing a Growth Mindset
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the crucial role of seeking feedback and mentoring in developing a growth mindset and unlocking your full potential at work. Constructive feedback and effective mentoring relationships provide valuable opportunities for learning, growth, and personal development. By actively seeking feedback and engaging in mentorship, you can cultivate a growth mindset, enhance your skills, and achieve professional success.
 

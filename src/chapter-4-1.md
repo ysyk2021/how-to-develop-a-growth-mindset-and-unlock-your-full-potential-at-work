@@ -1,5 +1,4 @@
-Chapter 8: The Role of Cultivating a Learning Orientation in Developing a Growth Mindset
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the importance of cultivating a learning orientation in developing a growth mindset. A learning orientation involves embracing challenges, seeking opportunities to learn and improve, and adopting a mindset that views failures and setbacks as valuable learning experiences. By fostering a learning orientation, individuals can unlock their full potential, enhance their skills, and develop a resilient growth mindset.
 

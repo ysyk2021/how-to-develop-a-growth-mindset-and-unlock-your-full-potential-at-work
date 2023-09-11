@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Seeking Feedback and Mentoring
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for seeking feedback and mentoring to foster personal and professional growth. Feedback and mentorship play crucial roles in developing a growth mindset and unlocking your full potential at work. By actively seeking feedback and finding suitable mentors, you can gain valuable insights, identify areas for improvement, and accelerate your career growth.
 

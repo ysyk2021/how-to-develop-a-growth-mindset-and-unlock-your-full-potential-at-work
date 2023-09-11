@@ -1,5 +1,4 @@
-Chapter 3: Using Positive Self-Talk and Perseverance Techniques
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the power of positive self-talk and perseverance techniques in developing a growth mindset and unlocking your full potential at work. By harnessing the benefits of positive self-talk and cultivating perseverance, you can overcome challenges, stay motivated, and achieve greater success in your professional journey.
 
